@@ -6,34 +6,48 @@
 •	Good with the people  
 •	One male conure, specifically, was a reoccurring problem  
 ### Hawk-headed Parrot 
-•	Aggressive behavior with ground-dwelling birds (aggressive vocalizing and displaying)  
+•	Was never released to the aviary, however showed aggressive behavior with ground-dwelling birds (aggressive vocalizing and displaying)  
 •	Interactive with people they are familiar with  
 ### Blue Crowned Lory
 •	Very aggressive towards other birds (Squatter Pigeons, Doves, and Jambu Fruit Doves)  
 •	Can be aggressive with people that are unfamiliar  
 •	Very territorial   
-•	Aggression becomes worse when in a stacked cage  
+•	Aggression becomes worse when in a stacked cage
+•	Aggressive behavior included pecking, biting, and pulling feathers  
 ### Yellow-Faced Mynahs  
 •	Known to attack and displace other birds  
 •	Nervous around people  
-•	Injured Indian Hill Mynah  
+•	Injured Indian Hill Mynah 
+•	Aggressive behavior was seen once there was more than one individual  
 ### Red-crested Cardinal
+•	Territorial  
 •	Aggression towards all birds except ground birds  
 •	Aggression especially towards Blue Jays, Starlings, and Fairy Bluebird  
 ### Victoria Crowned Pidgeon
-•	Aggression towards people (wingslapping)  
+•	Aggression towards people (wingslapping) 
+•	Would injure wings by hitting the rock boulders in the process of wingslapping  
 ### Blue-bellied Roller
 •	Aggression towards other birds (racquet-tailed roller and cockatiels)  
 ### Superb Starling
 •	Aggression towards people and other starlings, especially during breeding season  
+•	Became the victim of aggression when moved to a bigger aviary  
 ### White-Crested Laughing Thrush
 •	Aggression towards other birds  
+### Taveta Golden Weavers
+•	Aggressive towards other birds  
+### White-Headed Buffalo Weaver
+•	Aggressive towards other birds    
+### Northern Crested Coua
+•	Aggressive towards other birds when there was more than one. If it was a single Coua, there was no signs of aggressive behavior.   
 ### Jackson’s Hornbill
 •	Aggression towards other birds  
+•	No aggressive behavior when in stall with another Jackson’s hornbill  
+•	One instance includes grabbing and throwing a cockatiel by the neck   
 ### Vulturine Guineafowl
-•	Aggression towards other birds    
-•	Aggression towards the public  
+•	Aggression towards other birds, however, there was rarely any direct contact because the birds would run from them    
+•	Aggression towards the public in the form of hard pecking near the face and eyes of children.  
 ### Blue Jay
+•	Territorial
 •	Female known to attack interpreters/ public  
 ### Chestnut-breasted Malkoha 
 •	Minor aggression and displacement when birds were in his territory  
