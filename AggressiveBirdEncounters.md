@@ -12,19 +12,19 @@
 •	Very aggressive towards other birds (Squatter Pigeons, Doves, and Jambu Fruit Doves)  
 •	Can be aggressive with people that are unfamiliar  
 •	Very territorial   
-•	Aggression becomes worse when in a stacked cage
+•	Aggression becomes worse when in a stacked cage  
 •	Aggressive behavior included pecking, biting, and pulling feathers  
 ### Yellow-Faced Mynahs  
 •	Known to attack and displace other birds  
 •	Nervous around people  
-•	Injured Indian Hill Mynah 
+•	Injured Indian Hill Mynah   
 •	Aggressive behavior was seen once there was more than one individual  
 ### Red-crested Cardinal
 •	Territorial  
 •	Aggression towards all birds except ground birds  
 •	Aggression especially towards Blue Jays, Starlings, and Fairy Bluebird  
 ### Victoria Crowned Pidgeon
-•	Aggression towards people (wingslapping) 
+•	Aggression towards people (wingslapping)  
 •	Would injure wings by hitting the rock boulders in the process of wingslapping  
 ### Blue-bellied Roller
 •	Aggression towards other birds (racquet-tailed roller and cockatiels)  
