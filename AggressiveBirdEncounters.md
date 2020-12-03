@@ -19,10 +19,6 @@
 •	Nervous around people  
 •	Injured Indian Hill Mynah   
 •	Aggressive behavior was seen once there was more than one individual  
-### Red-crested Cardinal
-•	Territorial  
-•	Aggression towards all birds except ground birds  
-•	Aggression especially towards Blue Jays, Starlings, and Fairy Bluebird  
 ### Victoria Crowned Pidgeon
 •	Aggression towards people (wingslapping)  
 •	Would injure wings by hitting the rock boulders in the process of wingslapping  
@@ -33,12 +29,6 @@
 •	Became the victim of aggression when moved to a bigger aviary  
 ### White-Crested Laughing Thrush
 •	Aggression towards other birds  
-### Taveta Golden Weavers
-•	Aggressive towards other birds  
-### White-Headed Buffalo Weaver
-•	Aggressive towards other birds    
-### Northern Crested Coua
-•	Aggressive towards other birds when there was more than one. If it was a single Coua, there was no signs of aggressive behavior.   
 ### Jackson’s Hornbill
 •	Aggression towards other birds  
 •	No aggressive behavior when in stall with another Jackson’s hornbill  
@@ -46,9 +36,30 @@
 ### Vulturine Guineafowl
 •	Aggression towards other birds, however, there was rarely any direct contact because the birds would run from them    
 •	Aggression towards the public in the form of hard pecking near the face and eyes of children.  
+### Taveta Golden Weavers
+•	Aggressive towards other birds  
+### White-Headed Buffalo Weaver
+•	Aggressive towards other birds    
+### Northern Crested Coua
+•	Aggressive towards other birds when there was more than one. If it was a single Coua, there was no signs of aggressive behavior.   
 ### Blue Jay
-•	Territorial
+•	Territorial  
 •	Female known to attack interpreters/ public  
+### Red-crested Cardinal
+•	Territorial  
+•	Aggression towards all birds except ground birds  
+•	Aggression especially towards Blue Jays, Starlings, and Fairy Bluebird  
+### Speckled Mousebird
+•	Aggression towards other mousebirds (led to a couple of fatalities)   
+### Green Aracari
+•	Aggression with cockatiels and occasionally a couple of other birds  
+### Downy Woodpecker
+•	Occasional aggression with one of the keepers  
+### Golden Pheasants
+•	Occasional minor aggression towards people   
+### Guira Cuckoo’s
+•	Males would show minor aggression  
+•	When there was just females, no aggressive behavior was seen   
 ### Chestnut-breasted Malkoha 
 •	Minor aggression and displacement when birds were in his territory  
 ### African Grey Parrot
@@ -73,13 +84,13 @@
 •	Has been known to bite the public (Steinhart Aquarium)
 ### Budgies
 •	Female budgies involved in aggression with female rosellas (Woodland Park Zoo)
-### Rosellas
+### Eastern Rosellas
 •	Female rosellas involved in aggression with female budgies (Woodland Park Zoo)
 ### Kakarikis
 •	Occasional aggression with other kakarikis (Woodland Park Zoo)
 ### Tragopans (Satyr tragopan, Cabot’s tragopan, Temminck’s tragopan)
 •	Occasional aggression with the pheasants (Philadelphia Zoo)
-### Pheasants
+### Golden Pheasants
 •	Occasional aggression with the tragopans (Philadelphia Zoo)
 ### Red-Whiskered Bulbuls
 •	Occasional aggression with other red-whiskered bulbuls leading to the removal of some individuals from the habitat
