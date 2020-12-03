@@ -94,3 +94,7 @@
 •	Occasional aggression with the tragopans (Philadelphia Zoo)
 ### Red-Whiskered Bulbuls
 •	Occasional aggression with other red-whiskered bulbuls leading to the removal of some individuals from the habitat
+### Shama Thrush
+•	Minimal aggression with Chestnut-backed Thrush (Disney Animal Kingdom)  
+### Vietnam Pheasants
+•	Occasional aggression with other pheasants (Disney Animal Kingdom)  
